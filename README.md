@@ -2,6 +2,12 @@
 # 
 
 # Screenshots
+
+
+Uploading WhatsApp Video 2024-04-11 at 07.23.46_54df25f5.mp4…
+
+
+
 - https://www.youtube.com/watch?v=gj-H_agfd6U
 
 # Schematics
